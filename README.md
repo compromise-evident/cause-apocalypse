@@ -1,6 +1,6 @@
 <!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
-### 4. Expose fungus to X-rays
+### 4. Expose fungi to X-rays
 Damage fungus DNA while letting it reproduce over and over,
 until the spores are fatal to breathe.
 Spores are so tiny, they remain airborne and can be sneaked
