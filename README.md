@@ -1,6 +1,6 @@
 <!-- A growing list of sterilization hobbies. Pick one and become really good at it like the CDC. -->
 
-### 4. tinyCDC
+### 4. Expose fungus to X-rays
 Damage fungus DNA and let it reproduce over and over,
 until the spores are fatal to breathe.
 Spores are so tiny, they remain airborne and can be sneaked
