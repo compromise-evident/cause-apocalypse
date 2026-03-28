@@ -12,7 +12,8 @@ This can be tested on mice, which are inexpensive and sold at pet stores.
 <br>
 
 ### 3. Preserve unconsciousness
-Sabotage SpaceX, NASA, and what not.
+Sabotage SpaceX and NASA so we don't spread.
+Then count on asteroids to do the rest.
 
 <br>
 
