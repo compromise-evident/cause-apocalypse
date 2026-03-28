@@ -5,7 +5,9 @@ Damage fungus DNA while letting it reproduce over and over,
 until the spores are fatal to breathe.
 Spores are so tiny, they remain airborne and can be sneaked
 into big events with lots of people and confined breeze.
-You can test this on mice, which are inexpensive and sold at pet stores.
+The fungus should mushroom out of the dead body quickly,
+and spread its spores to the rest of the world.
+This can be tested on mice, which are inexpensive and sold at pet stores.
 
 <br>
 
