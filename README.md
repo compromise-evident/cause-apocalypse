@@ -1,7 +1,7 @@
 <!-- A growing list of sterilization hobbies. Pick one and become really good at it like the CDC. -->
 
 ### 4. Expose fungus to X-rays
-Damage fungus DNA and let it reproduce over and over,
+Damage fungus DNA while letting it reproduce over and over,
 until the spores are fatal to breathe.
 Spores are so tiny, they remain airborne and can be sneaked
 into big events with lots of people and confined breeze.
