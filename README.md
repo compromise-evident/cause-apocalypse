@@ -1,4 +1,4 @@
-<!-- A growing list of sterilization hobbies. Pick one and become really good at it like the CDC. -->
+<!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
 ### 4. Expose fungus to X-rays
 Damage fungus DNA while letting it reproduce over and over,
