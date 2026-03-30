@@ -24,6 +24,6 @@
 
 <br>
 
-1.  **Survive to kill survivors**
+1.  **Survive to kill survivors** <br>
     Prep for doomsday so that post-apocalypse, you'll make
     so-called friends with other survivors just to kill them.
