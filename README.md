@@ -12,7 +12,8 @@
 <br>
 
 3.  **Sabotage NASA & SpaceX** <br>
-    That'll stop us from spreading while asteroids do the rest.
+    That'll keep us from spreading while asteroids do the rest.
+    Go work on the moon just to kill the crew.
 
 <br>
 
