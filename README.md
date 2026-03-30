@@ -11,16 +11,14 @@
 
 <br>
 
-3.  **Sabotage SpaceX & NASA** <br>
+3.  **Sabotage NASA & SpaceX** <br>
     That'll stop us from spreading while asteroids do the rest.
 
 <br>
 
 2.  **Set post-apocalyptic traps** <br>
-    Build systems that detect and kill life emerging post-apocalypse.
-    If you want to place such systems in space, you might have to start a
-    SpaceX of your own and traumatically
-    indoctrinate your kids to carry-on the mission.
+    Build devices that appear to be resources you'd only
+    want post-apocalypse, but are fatal if tampered with.
 
 <br>
 
