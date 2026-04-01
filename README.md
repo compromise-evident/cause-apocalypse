@@ -1,6 +1,6 @@
 <!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
-4.  **Expose spores to X-rays** <br>
+1.  **Expose spores to X-rays** <br>
     Use X-rays to damage the DNA in spores of homothallic mushrooms,
     until the resulting mushrooms produce spores that are fatal to breathe.
     Spores are so tiny, they remain airborne and can be sneaked
@@ -12,18 +12,18 @@
 
 <br>
 
-3.  **Sabotage NASA & SpaceX** <br>
+2.  **Sabotage NASA & SpaceX** <br>
     That'll keep us from spreading while asteroids do the rest.
     Go work on the moon just to kill the crew.
 
 <br>
 
-2.  **Set post-apocalyptic traps** <br>
+3.  **Set post-apocalyptic traps** <br>
     Build devices that appear to be resources you'd only
     want post-apocalypse, but are fatal if tampered with.
 
 <br>
 
-1.  **Survive to kill survivors** <br>
+4.  **Survive to kill survivors** <br>
     Prep for doomsday so that post-apocalypse, you'll make
     so-called friends with other survivors just to kill them.
