@@ -1,13 +1,14 @@
 <!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
-4.  **Expose fungi to X-rays** <br>
-    Damage fungus DNA while letting it reproduce over and over,
-    until the spores are fatal to breathe.
+4.  **Expose spores to X-rays** <br>
+    Use X-rays to damage spore DNA of homothallic mushrooms,
+    until the resulting mushrooms produce spores that are fatal to breathe.
     Spores are so tiny, they remain airborne and can be sneaked
     into big events with lots of people and confined breeze.
     The fungus should mushroom out of the dead body quickly,
     and spread its spores to the rest of the world.
     This can be tested on mice, which are inexpensive and sold at pet stores.
+    This is called radiation-breeding.
 
 <br>
 
