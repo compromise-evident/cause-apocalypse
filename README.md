@@ -9,6 +9,7 @@
     and spread its spores to the rest of the world.
     This can be tested on mice, which are inexpensive and sold at pet stores.
     This is called radiation-breeding.
+    Make sure the mutation is stable through a number of generations.
 
 <br>
 
