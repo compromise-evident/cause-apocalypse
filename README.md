@@ -1,7 +1,7 @@
 <!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
 1.  **Expose spores to X-rays** <br>
-    Use X-rays to damage the DNA in spores of homothallic mushrooms,
+    Use high-energy X-rays to damage the DNA in spores of homothallic mushrooms,
     until a resulting mushroom produces spores that are fatal to breathe.
     Spores are so tiny, they remain airborne and can be sneaked
     into big events with lots of people and confined breeze.
