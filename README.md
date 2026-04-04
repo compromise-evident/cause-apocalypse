@@ -1,6 +1,6 @@
 <!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. -->
 
-1.  **Expose spores to X-rays** <br>
+1.  **Mutation breed mushrooms** <br>
     Use high-energy X-rays to damage the DNA in spores of homothallic mushrooms,
     until a resulting mushroom produces spores that are fatal to breathe.
     Spores are so tiny, they remain airborne and can be sneaked
@@ -8,7 +8,6 @@
     The fungus should mushroom out of the dead body quickly,
     and spread its spores to the rest of the world.
     This can be tested on mice, which are inexpensive and sold at pet stores.
-    This is called mutation breeding.
     Make sure the mutation is stable through a number of generations.
     A good sign that your X-ray source is legitimate and that you're doing it right,
     is when most of the spore sample is nonviable after exposure.
