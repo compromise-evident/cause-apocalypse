@@ -15,7 +15,7 @@
 <br>
 
 2.  **Resistance breed mushrooms** <br>
-    Ditto but with existing deadly spores. Good luck
+    Ditto but with existing spores. Good luck
     finding animals with an immune system like your own.
 
 <br>
