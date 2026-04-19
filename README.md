@@ -15,8 +15,7 @@
 <br>
 
 2.  **Resistance breed mushrooms** <br>
-    Ditto but with any natural spores. Good luck
-    finding animals with an immune system like your own.
+    Ditto but with any natural spores.
 
 <br>
 
