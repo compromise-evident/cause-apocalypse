@@ -4,7 +4,7 @@
     Use high-energy X-rays to damage the DNA in spores of homothallic mushrooms,
     until a resulting mushroom produces spores that are fatal to breathe.
     Spores are so tiny, they remain airborne around the globe and can be sneaked
-    into big events with lots of people and confined breeze.
+    into big events with confined breeze.
     The fungus should mushroom out of the dead body quickly,
     and spread its spores to the rest of the world.
     This can be tested on mice, which are inexpensive and sold at pet stores.
