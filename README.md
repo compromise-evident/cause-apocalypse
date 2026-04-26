@@ -45,3 +45,28 @@
 5.  **Survive to kill survivors** <br>
     Prep for doomsday so that post-apocalypse, you'll make
     so-called friends with other survivors just to kill them.
+
+<br>
+
+6.  **Ask AI what odd things to assemble** <br>
+    You might be able to blow the planet by combining and
+    configuring an assortment of technical items as directed.
+    Surely, there's something beyond quantum mechanics,
+    and AI knows how to use it.
+    
+    Surprises like quantum mechanics and alternate realities
+    don't come from a guess in the dark. Here's how scientists
+    prophesy schizo shit that is then experimentally proven right.
+
+    You can describe something with words. And you can describe
+    the opposite by replacing some of those same words without
+    breaking the structure of your description.
+
+    Now try that with mathematical symbols instead of words.
+    By modifying an equation that already describes a real
+    action, you get a new description of a new
+    (surprising) action that is likely legitimate.
+
+    And that's just the beginning. Real schizo shit means you
+    need not start with real-world equations. What's merely legitimate
+    in mathematics can be modified then applied to the real world.
