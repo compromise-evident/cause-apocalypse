@@ -1,0 +1,26 @@
+Target     (anode): 1mm thick tungsten plate on copper rod. 12-20 degree angle. Extends out, bolted to heatsink, and insulated. Grounded.
+Filament (cathode): tungsten bulb, shielded with a smooth stainless steel focusing cup (like in a flashlight) connected to negative charge of filament. Battery powered.
+50-100+ kV:         HV negative to the filament's negative, HV positive to the target. Higher voltage means X-rays of higher energy.
+
+Electrons don't reflect off the target. They dive into it, and the target shoots out X-rays in all directions, even into itself.
+
+
+
+
+
+
+The vacuum in your vacuum chamber is never perfect. Place a titanium sheet inside it and scratch the sheet from the outside.
+Abrasive to scratch titanium sheet: a piece of vitrified ceramic wheel for bench grinders (high-purity alumina or silicon carbide stone).
+
+Titanium sheet
+Once the chamber is a vacuum, scratch the titanium sheet by moving the iron block with a strong magnet.
+A fresh titanium surface reacts with O2, N2, H2, H2O, CO, and CO2 to form a thin solid layer.
+This layer must be scratched off in order to expose fresh titanium again and again.
+However, fresh titanium does not react with Helium, Neon, Argon, Krypton, and Xenon.
+That's why the vacuum chamber if filled with O2 or N2 over and over, to purge those noble gasses.
+The chamber will keep outgassing so the titanium will need to be scratched again.
+
+bake, clean, test chamber by looking for glow with HV
+
+
+Vacuum pump
