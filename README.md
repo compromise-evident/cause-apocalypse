@@ -15,8 +15,8 @@
 <br>
 
 2.  **Resistance breed mushrooms** <br>
-    Ditto but with any natural spores,
-    where they learn to resist your immune system.
+    Ditto but with any natural spores, no X-rays.
+    Train spores to resist the human immune system.
 
 <br>
 
