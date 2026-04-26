@@ -19,6 +19,8 @@
     And with enough damage, the spore will be overwhelmed in repair
     when germinating. This can cause desirable changes,
     but not as backwards and chaotic as those of X-ray damage.
+    And because UV does not penetrate too well, make sure
+    the spore sample is an extremely thin layer or spores.
 
 <br>
 
