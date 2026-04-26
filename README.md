@@ -10,12 +10,20 @@
     This can be tested on mice, which are inexpensive and sold at pet stores.
     Make sure the mutation is stable through a number of generations.
     A good sign that your X-ray source is legitimate and that you're doing it right,
-    is when most of the spore sample is nonviable after exposure.
+    is when 90% of the spore sample is nonviable after exposure.
+    By the way, you inhale up to 10,000 spores per day.
+    
+    You can use UV instead of X-rays, where 95-99%
+    of the spore sample must be nonviable after exposure.
+    UV will penetrate the thinner uneven spots of the spore shell.
+    And with enough damage, the spore will be overwhelmed in repair
+    when germinating. This can cause desirable changes,
+    but not as backwards and chaotic as those of X-ray damage.
 
 <br>
 
 2.  **Resistance breed mushrooms** <br>
-    Ditto but with any natural spores, no X-rays.
+    Ditto but with any natural spores, no X-rays, no UV.
     Train spores to resist the human immune system.
 
 <br>
