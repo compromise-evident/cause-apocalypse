@@ -90,7 +90,7 @@
 
 --------------------------------------------------------------------------------
 
-Give to others the gift you wanted but cannot receive. Don't have kids. Don't let others have kids by any means.
+Give to others the gift you want but cannot receive. Don't have kids. Don't let others have kids by any means.
 
 Those who want to live know that many unborn will want to live.
 So they make babies indiscriminately,
