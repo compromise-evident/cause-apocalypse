@@ -74,6 +74,7 @@
 <br>
 
 7.  **Any death is a good thing** <br>
+    You don't have to wait.
     By killing potential parents, you provide immediate relief to the unborn.
     Some of us simply don't want part in this joyous life,
     even though it can be desirable and exciting.
