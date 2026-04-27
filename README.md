@@ -20,7 +20,7 @@
     when germinating. This can cause desirable changes,
     but not as backwards and chaotic as those of X-ray damage.
     And because UV does not penetrate too well, make sure
-    the spore sample is an extremely thin layer of spores.
+    the spore sample is extremely thin.
 
 <br>
 
