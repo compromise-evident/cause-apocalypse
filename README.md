@@ -57,16 +57,31 @@
     Surprises like quantum mechanics and alternate realities
     don't come from a guess in the dark. Here's how scientists
     prophesy schizo shit that is then experimentally proven right.
-
+    
     You can describe something with words. And you can describe
     the opposite by replacing some of those same words without
     breaking the structure of your description.
-
+    
     Now try that with mathematical symbols instead of words.
     By modifying an equation that already describes a real
     action, you get a new description of a new
     (surprising) action that is likely legitimate.
-
+    
     And that's just the beginning. Real schizo shit means you
     need not start with real-world equations. What's merely legitimate
     in mathematics can be modified then applied to the real world.
+
+<br>
+
+7.  **Any death is a good thing** <br>
+    By killing potential parents, you provide immediate relief to the unborn.
+    Some of us simply don't want part in this joyous life,
+    even though it can be desirable and exciting.
+    Just as you wish someone had killed your parents before you were born,
+    you can give that gift to someone else, and generations.
+    
+    Arson is essentially a chain reaction for free.
+    And by sabotaging suppression systems beforehand,
+    you'll make it impossible to put out the fire.
+    There's rat poison. There's waking a mega volcano.
+    Buy guns while you still can!
