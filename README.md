@@ -92,13 +92,13 @@
 
 Give to others the gift you want but cannot receive. Don't have kids. Don't let others have kids by any means.
 
-Those who want to live know that many unborn will want to live.
-So they make babies indiscriminately,
-at the cost of raping into existence those who don't want to live.
+* Those who want to live know that many unborn will want to live.
+  So they make babies indiscriminately,
+  at the cost of raping into existence those who don't want to live.
 
-Those who don't want to live know that many unborn won't want to live.
-So they kill indiscriminately,
-at the cost of preventing the birth of those who would have wanted to live.
+* Those who don't want to live know that many unborn won't want to live.
+  So they kill indiscriminately,
+  at the cost of preventing the birth of those who would have wanted to live.
 
 And that's fair. Both are equally terrorist.
 Both are looking out for their own kind.
