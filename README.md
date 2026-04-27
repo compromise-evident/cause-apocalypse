@@ -74,15 +74,17 @@
 <br>
 
 7.  **Any death is a good thing** <br>
-    You don't have to wait.
-    By killing potential parents, you provide immediate relief to the unborn.
-    Some of us simply don't want part in this joyous life,
-    even though it can be desirable and exciting.
-    Just as you wish someone had killed your parents before you were born,
-    you can give that gift to someone else, and generations.
-    
+    You can provide immediate relief to the unborn, no need to wait.
     Arson is essentially a chain reaction for free.
     And by sabotaging suppression systems beforehand,
     you'll make it impossible to put out the fire.
     There's rat poison. There's waking a mega volcano.
     Buy guns while you still can!
+
+<br>
+<br>
+
+Some of us simply don't want part in this joyous life,
+even though it can be desirable and exciting.
+And just as some of us wish our parents were killed before we were born,
+we can give that gift to others who would have been like us.
