@@ -81,7 +81,7 @@
     There's rat poison. There's waking a mega volcano.
     There's setting a trap and replacing items at the store.
     There's death cults, where you can traumatically indoctrinate
-    your kids to carry-on the mission.
+    kids to carry-on the mission.
     Buy guns while you still can!
 
 <br>
