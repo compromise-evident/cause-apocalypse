@@ -89,5 +89,6 @@
 Some of us simply don't want part in this joyous life,
 even though it can be desirable and exciting.
 And just as some of us wish our parents were killed before we were born,
-we can give that gift to others who would have been like us,
-the same way you rape into existence those who would be like you.
+we can give that gift to others who would have been like us.
+See, you gift life to those like yourself while inadvertently raping us into existence.
+And we gift nonexistence indiscriminately. We are the same terrorist.
