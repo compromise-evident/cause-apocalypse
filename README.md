@@ -79,6 +79,9 @@
     And by sabotaging suppression systems beforehand,
     you'll make it impossible to put out the fire.
     There's rat poison. There's waking a mega volcano.
+    There's setting a trap and replacing items at the store.
+    There's death cults, where you can traumatically indoctrinate
+    your kids to carry-on the mission.
     Buy guns while you still can!
 
 <br>
@@ -87,12 +90,15 @@
 
 --------------------------------------------------------------------------------
 
-Those who want to live know that many unborn will say the same.
+Give to others the gift you wanted but cannot receive. Don't have kids. Don't let others have kids by any means.
+
+Those who want to live know that many unborn will want to live.
 So they make babies indiscriminately,
 at the cost of raping into existence those who don't want to live.
 
-And those who don't want to live know that many unborn will say the same.
+Those who don't want to live know that many unborn won't want to live.
 So they kill indiscriminately,
-at the cost of killing those who would have wanted to live.
+at the cost of preventing the birth of those who would have wanted to live.
 
-It's fair. Both are equally terrorist.
+And that's fair. Both are equally terrorist.
+Both are looking out for their own kind.
