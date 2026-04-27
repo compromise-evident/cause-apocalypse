@@ -86,10 +86,12 @@
 
 --------------------------------------------------------------------------------
 
-Some of us simply don't want part in this joyous life,
-even though it can be desirable and exciting.
-And just as some of us wish our parents were killed before we were born,
-we can give that gift to others who would have been like us.
-See, you gift life to those like yourself while knowingly raping us into existence,
-just as we gift nonexistence indiscriminately.
-You and I are equally terrorist.
+Those who want to live know that many unborn will say the same.
+So they make babies indiscriminately,
+at the cost of raping into existence those who don't want to live.
+
+And those who don't want to live know that many unborn will say the same.
+So they kill indiscriminately,
+at the cost of killing those who would have wanted to live.
+
+It's fair. Both are equally terrorist.
