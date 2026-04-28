@@ -95,15 +95,15 @@ Give to others the gift you want but can't receive. Don't have kids. Don't let o
 * Those who want to live know that many unborn will want to live.
   So they make babies indiscriminately,
   at the cost of raping into existence those who don't want to live.
-  And to them that's not enough.
-  They go out of their way to promote safety guidelines which force life on others.
+  As if that's not enough,
+  they go out of their way to promote safety guidelines which force life on others.
   No mass harm. No self harm. No way out for anyone.
 
 * Those who don't want to live know that many unborn won't want to live.
   So they kill indiscriminately,
   at the cost of preventing the birth of those who would have wanted to live.
-  And to them that's not enough.
-  They go out of their way to promote safety guidelines which force death on others.
+  As if that's not enough,
+  they go out of their way to promote safety guidelines which force death on others.
   Mass harm. Self harm. A way out for everyone.
 
 And that's fair. Both are equally terrorist.
