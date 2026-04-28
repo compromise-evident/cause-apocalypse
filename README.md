@@ -89,7 +89,7 @@
 <br>
 
 --------------------------------------------------------------------------------
-My philosophy
+### My philosophy
 
 Give to others the gift you want but can't receive.
 Don't have kids. Don't let others have kids by any means.
