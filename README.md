@@ -112,4 +112,4 @@ And that's fair. Both are equally terrorist. Both are looking out for their own 
   created us anyway. Now many will burn without end, not of their own doing.
 
 * God bet that his creation would not choose darkness, and lost the bet.
-  Who are YOU to bet that YOUR creation would not do the same and burn without end?
+  Who are YOU to bet that YOUR creation would not do the same?
