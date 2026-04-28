@@ -89,22 +89,26 @@
 <br>
 
 --------------------------------------------------------------------------------
+My philosophy
 
-Give to others the gift you want but can't receive. Don't have kids. Don't let others have kids by any means.
+Give to others the gift you want but can't receive.
+Don't have kids. Don't let others have kids by any means.
 
 * Those who want to live know that many unborn will want to live.
-  So they make babies indiscriminately,
-  at the cost of raping into existence those who don't want to live.
-  As if that's not enough, they promote safety guidelines which force life on others;
-  No mass harm. No self harm. No way out for anyone.
+  So they make babies indiscriminately, at the cost of raping
+  into existence those who don't want to live. As if that's not
+  enough, they promote safety guidelines which force life on
+  others; No mass harm. No self harm. No way out for anyone.
 
 * Those who don't want to live know that many unborn won't want to live.
-  So they kill indiscriminately,
-  at the cost of preventing the birth of those who would have wanted to live.
-  As if that's not enough, they promote safety guidelines which force death on others;
+  So they kill indiscriminately, at the cost of preventing the birth of
+  those who would have wanted to live. As if that's not enough, they
+  promote safety guidelines which force death on others;
   Mass harm. Self harm. A way out for everyone.
 
-And that's fair. Both are equally terrorist. Both are looking out for their own kind. And to my Christian friends:
+And that's fair.
+Both are equally terrorist. Both are looking out for their own kind.
+And to my Christian friends:
 
 * God knew that the risk of creation is that some might choose darkness, but he
   created us anyway. Now many will burn without end, not of their own doing.
