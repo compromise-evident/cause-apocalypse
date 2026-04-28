@@ -106,5 +106,10 @@ Give to others the gift you want but can't receive. Don't have kids. Don't let o
   they go out of their way to promote safety guidelines which force death on others.
   Mass harm. Self harm. A way out for everyone.
 
-And that's fair. Both are equally terrorist.
-Both are looking out for their own kind.
+And that's fair. Both are equally terrorist. Both are looking out for their own kind. And to my Christian friends:
+
+* God knew that the risk of creation is that some might choose darkness, but he
+  created us anyway. Now many will burn without end, not of their own doing.
+
+* God bet that his creation would not choose darkness, and lost the bet.
+  Who are YOU to bet that YOUR creation would not do the same and burn without end?
