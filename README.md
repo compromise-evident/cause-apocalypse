@@ -1,4 +1,4 @@
-<!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. For the benefit of the unborn who simply won't want to live. -->
+<!-- Earth sterilization ideas. Pick one and become really good at it like the CDC. For the benefit of the unborn who simply won't want to live. Stop raping them into existence. -->
 
 1.  **Mutation breed mushrooms** <br>
     Use high-energy X-rays to damage the DNA in spores of homothallic mushrooms,
