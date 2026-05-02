@@ -78,6 +78,9 @@
     Arson is essentially a chain reaction for free.
     And by sabotaging suppression systems beforehand,
     you'll make it impossible to put out the fire.
+    You can monitor the weather for systemic long-term
+    wind that can carry heat and hot particles in the direction
+    of what is just asking to be burned.
     There's rat poison. There's waking a mega volcano.
     There's setting a trap and replacing items at the store.
     There's death cults, where you can traumatically indoctrinate
