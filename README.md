@@ -101,13 +101,13 @@ Don't have kids. Don't let others have kids by any means.
   So they make babies indiscriminately, at the cost of raping
   into existence those who don't want to live. As if that's not
   enough, they promote and act upon safety guidelines which force life
-  on others; No mass harm. No self harm. No way out for anyone.
+  on others; No mass harm, no self harm, no way out for anyone.
 
 * Those who don't want to live know that many unborn won't want to live.
   So they kill indiscriminately, at the cost of preventing the birth of
   those who would have wanted to live. As if that's not enough, they
   promote and act upon safety guidelines which force death on others;
-  Mass harm. Self harm. A way out for everyone.
+  Mass harm, self harm, a way out for everyone.
 
 And that's fair.
 Both are equally terrorist. Both are looking out for their own kind.
