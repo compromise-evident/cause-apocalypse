@@ -30,7 +30,7 @@
 
 <br>
 
-3.  **Sabotage NASA & SpaceX** <br>
+3.  **Sabotage SpaceX and Blue Origin** <br>
     That'll keep us from spreading while asteroids do the rest.
     Go work on the moon just to kill the crew.
 
