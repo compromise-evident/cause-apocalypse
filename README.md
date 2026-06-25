@@ -94,7 +94,7 @@
 --------------------------------------------------------------------------------
 ### My philosophy
 
-Give to others the gift you want but can't receive.
+Give the gift you wanted but couldn't receive.
 Don't have kids. Don't let others have kids by any means.
 
 * Those who want to live know that many unborn will want to live.
