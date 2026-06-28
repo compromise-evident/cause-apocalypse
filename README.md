@@ -94,6 +94,8 @@
 --------------------------------------------------------------------------------
 ### My philosophy
 
+There are 2 kinds of people in this world,
+and both are equally terrorist.
 Give the gift you wanted but couldn't receive.
 Don't have kids. Don't let others have kids by any means.
 
